@@ -12,9 +12,6 @@ We help businesses grow by delivering expert sales strategies and result-driven 
 
 Whether you're launching a new product or expanding your reach, Sharif 1314 is your partner in progress.
 
-Email Us sbepari881@gamil.com
-
-Chat on WhatsAp 9957372912
 
 Why Choose Us?
 
@@ -36,3 +33,9 @@ Transparent communication
 🔒 Locks & Hardware – dependable, secure, and built to last
 
 ➕ And much more — all delivered with speed and integrity
+
+
+
+Email Us sbepari881@gamil.com
+
+Chat on WhatsAp 9957372912
