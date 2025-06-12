@@ -1,4 +1,8 @@
-Sharif 1314
+✨ Sharif 1314 – Sales, Supplies & Strategic Partnerships
+Empowering Businesses with Quality Products and Reliable Service
+
+ we’re more than just sellers —
+we're your dedicated partner in procurement and growth.Sharif 1314
 
 Smart Sales. Strategic Marketing. Real Results.
 
@@ -21,3 +25,14 @@ Personalized marketing plans
 ROI-focused campaigns
 
 Transparent communication
+🖊️ Premium Stationery – for schools, offices, and businesses
+
+🏫 School Items & Trendy Bags – trusted by educators and students
+
+🍽️ Monohari & Household Essentials – for everyday retail needs. 
+💄 Popular Cosmetics & Fashion Items – Nail Polish, Lipsticks, and more. 
+🔌 Electronics & Accessories – from gadgets to daily tech tools
+
+🔒 Locks & Hardware – dependable, secure, and built to last
+
+➕ And much more — all delivered with speed and integrity
