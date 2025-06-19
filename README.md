@@ -13,15 +13,17 @@ We help businesses grow by delivering expert sales strategies and result-driven 
 Whether you're launching a new product or expanding your reach, Sharif 1314 is your partner in progress.
 
 
-Why Choose Us?
+WHY CHOOSE US?
 
-Proven sales strategies
+PROVEN SALES STRATEGIES
 
-Personalized marketing plans
+PERSONALIZED MARKETING PLANS
 
-ROI-focused campaigns
+ROI-FOCUSED CAMPAIGNS
 
-Transparent communication
+TRANSPARENT COMMUNICATIO. 
+
+
 🖊️ Premium Stationery – for schools, offices, and businesses
 
 🏫 School Items & Trendy Bags – trusted by educators and students
